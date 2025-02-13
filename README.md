@@ -11,7 +11,7 @@ Here are some ideas to get you started:
 
 •	💬 Ask me about anything, I'm ready to help
 
-•	📫 How to reach me: shetharsh24@gmail.com
+•	📫 How to reach me: harsheth97@gmail.com
 
 •	⚡ My hobbies include reading books, playing chess and cricket.
 
